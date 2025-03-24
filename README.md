@@ -1,4 +1,10 @@
 # first_demo
-This is my first Git Repository
+Thissssddddghuhur
+dfhut
+iyjy
+ktgtu
+is my first Git Repository
 <br>
-Author : Shubhra Dash
+8uthor : hansuja
+ddd
+
